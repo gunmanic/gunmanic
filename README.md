@@ -13,3 +13,6 @@ oh btw if ur reading this be your unapologetic self, even if people hate it ther
   <br>
   <br>
 <img width="670" height="282" alt="Screenshot 2026-01-29 192805" src="https://github.com/user-attachments/assets/b5718042-6836-4a61-861e-7130ae73b803" />
+<br>
+<br>
+at the time of writing this i am having. Very gay thoughts about regect can someone kill me with stones

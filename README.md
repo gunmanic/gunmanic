@@ -16,3 +16,6 @@ oh btw if ur reading this be your unapologetic self, even if people hate it ther
 <br>
 <br>
 at the time of writing this i am having. Very gay thoughts about regect can someone kill me with stones
+<br>
+<br>
+update: still am

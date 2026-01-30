@@ -2,6 +2,10 @@
     </div> <div align="center">
 my w if 🤤
 <br>
-oh btw if ur reading this be your unapologetic self, even if people hate it theres someone wholl be your friend and love you for you
+<br>
+oh btw if ur reading this be your unapologetic self, even if people hate it theres someone wholl be your friend and love you for you (unless ur harming others lol)
 <br>
 - Ze
+<br>
+<br>
+#burnthatprotree dawg tf

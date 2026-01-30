@@ -3,3 +3,5 @@
 my w if 🤤
 <br>
 oh btw if ur reading this be your unapologetic self, even if people hate it theres someone wholl be your friend and love you for you
+<br>
+- Ze

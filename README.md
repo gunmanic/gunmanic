@@ -10,3 +10,6 @@ oh btw if ur reading this be your unapologetic self, even if people hate it ther
 <br>
 <br>
 #burnthatprotree dawg tf
+  <br>
+  <br>
+<img width="670" height="282" alt="Screenshot 2026-01-29 192805" src="https://github.com/user-attachments/assets/b5718042-6836-4a61-861e-7130ae73b803" />
